@@ -26,4 +26,4 @@
 ---
 
 ## 📫 Connect With Me
-- LinkedIn (Add later)
+- [LinkedIn](https://www.linkedin.com/in/damarasinghu-vamsi-kumar-4107742a2/)
